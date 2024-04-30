@@ -1,4 +1,4 @@
-### Hey. How're you? 👋 I's Juan David Cuellar López
+### Hey. How're you? 👋 It's Juan David Cuellar López
 ## I'm studen on the Universidad del valle(univalle). Process Systems Enginner.
 
 <!--
